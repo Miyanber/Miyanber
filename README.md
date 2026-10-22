@@ -1,8 +1,5 @@
 # Hi there, I'm Miyanber 👋
 
-GDGoC Kobe Univ. 
-
-
 ---
 
 ### 🚀 About Me
